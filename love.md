@@ -34,9 +34,9 @@ My only regret is not thinking of this idea sooner.
 | 2018 | July      | 12  | The video you sent me of you opening the letter from Viterbo containing your diploma. So cute! |
 | 2018 | July      | 13  | The advice to drink water before going to sleep so I would wake up having to pee and then be out of bed (which is the hardest part of the morning). |
 | 2018 | July      | 14  | Getting me to head out into Boston (and end up walking 16.6 miles with 33,722 steps!) Because honestly I needed the push. |
-| 2018 | July      | 15  | 
-| 2018 | July      | 16  |
-| 2018 | July      | 17  |
-| 2018 | July      | 18  |
-| 2018 | July      | 19  |
+| 2018 | July      | 15  | Finding out that we were both worried that the other would see us as lazy if we just wanted to lie in bed and cuddle. |
+| 2018 | July      | 16  | M: "Do you know what I wish?" D: "That I was with you?" M: "... Also that. That the Hastings Target didn't close." |
+| 2018 | July      | 17  | When you told me about putting in your two weeks. I could feel a difference. |
+| 2018 | July      | 18  | Sending me apartments to look at to evaluate places we might choose to live together in. |
+| 2018 | July      | 19  | All the work you put in toward looking up apartments, and setting up a day to go look at them while keeping in mind my work schedule. |
 
