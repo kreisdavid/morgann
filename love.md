@@ -20,21 +20,21 @@ My only regret is not thinking of this idea sooner.
 | 2018 | June      | 28  | Coming to see me before I left for my grandma's cabin. |
 | 2018 | June      | 29  | As much as it hurt to hear about the pain, knowing that I was leaving for multiple days and wasn't going to be there to help, keeping me updated and so much explanation. Really an example of how open I should be, and something I want to take to heart. |
 | 2018 | June      | 30  | I had a dream about trying to find you, and along the way I adopted a cat and a mouse that could talk, but only ever asked me to scratch it's head. And calling me while I was at the lake. |
-| 2018 | July      |  1  |
-| 2018 | July      |  2  |
-| 2018 | July      |  3  |
+| 2018 | July      |  1  | "You're so extra cute with a thicc beard!" |
+| 2018 | July      |  2  | Sending me the song "Come and Get Your Love" as I drove to Hastings after being at the lake. |
+| 2018 | July      |  3  | The beach! What a lovely time, lounging on the floaty, and feeding duck friends. |
 | 2018 | July      |  4  | Hitting me in the face while wearing the frozen eye mask. |
-| 2018 | July      |  5  |
-| 2018 | July      |  6  |
-| 2018 | July      |  7  |
-| 2018 | July      |  8  |
-| 2018 | July      |  9  |
-| 2018 | July      | 10  |
-| 2018 | July      | 11  |
-| 2018 | July      | 12  |
-| 2018 | July      | 13  |
-| 2018 | July      | 14  |
-| 2018 | July      | 15  |
+| 2018 | July      |  5  | Playing battleship and chess, and interacting with my friends. |
+| 2018 | July      |  6  | Cuddling in the morning after you slept over because we had drank so much the night before. |
+| 2018 | July      |  7  | The "I love my job" snapchat with the extra long Pinocchio nose filter. |
+| 2018 | July      |  8  | Going to J. Selbys, and sleeping cuddled together. |
+| 2018 | July      |  9  | Taking me to the airport and all the supportive text messages as I ventured off to start my job. |
+| 2018 | July      | 10  | The pride you displayed when building the desk all by yourself despite it saying another person would be needed. |
+| 2018 | July      | 11  | Being there for me after a tough day at work when I was down about my ability to do my job. |
+| 2018 | July      | 12  | The video you sent me of you opening the letter from Viterbo containing your diploma. So cute! |
+| 2018 | July      | 13  | The advice to drink water before going to sleep so I would wake up having to pee and then be out of bed (which is the hardest part of the morning). |
+| 2018 | July      | 14  | Getting me to head out into Boston (and end up walking 16.6 miles with 33,722 steps!) Because honestly I needed the push. |
+| 2018 | July      | 15  | 
 | 2018 | July      | 16  |
 | 2018 | July      | 17  |
 | 2018 | July      | 18  |
