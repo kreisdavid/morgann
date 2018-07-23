@@ -39,4 +39,7 @@ My only regret is not thinking of this idea sooner.
 | 2018 | July      | 17  | When you told me about putting in your two weeks. I could feel a difference. |
 | 2018 | July      | 18  | Sending me apartments to look at to evaluate places we might choose to live together in. |
 | 2018 | July      | 19  | All the work you put in toward looking up apartments, and setting up a day to go look at them while keeping in mind my work schedule. |
+| 2018 | July      | 20  | Picking me up from the airport, and the look on your face as we saw each other in person for the first time in 12 days. |
+| 2018 | July      | 21  | My early birthday present. So perfect, so thoughtful. |
+| 2018 | July      | 22  | The way the smile crept across your face when I added Target as a place we could go walk around. |
 
