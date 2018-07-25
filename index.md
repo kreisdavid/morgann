@@ -42,4 +42,6 @@ My only regret is not thinking of this idea sooner.
 | 2018 | July      | 20  | Picking me up from the airport, and the look on your face as we saw each other in person for the first time in 12 days. |
 | 2018 | July      | 21  | My early birthday present. So perfect, so thoughtful. |
 | 2018 | July      | 22  | The way the smile crept across your face when I added Target as a place we could go walk around. |
+| 2018 | July      | 23  | Figuring out our rankings as boyfriend/girlfriend by Zodiac sign. |
+| 2018 | July      | 24  | Arriving to your place and being greeted not only by you, but also homemade and delicious veggie pot-pies. |
 
