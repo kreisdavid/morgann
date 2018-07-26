@@ -44,4 +44,4 @@ My only regret is not thinking of this idea sooner.
 | 2018 | July      | 22  | The way the smile crept across your face when I added Target as a place we could go walk around. |
 | 2018 | July      | 23  | Figuring out our rankings as boyfriend/girlfriend by Zodiac sign. |
 | 2018 | July      | 24  | Arriving to your place and being greeted not only by you, but also homemade and delicious veggie pot-pies. |
-
+| 2018 | July      | 25  | The ability you have to make me feel better, even when things are difficult for you. |
