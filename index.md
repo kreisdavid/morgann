@@ -46,3 +46,6 @@ My only regret is not thinking of this idea sooner.
 | 2018 | July      | 24  | Arriving to your place and being greeted not only by you, but also homemade and delicious veggie pot-pies. |
 | 2018 | July      | 25  | The ability you have to make me feel better, even when things are difficult for you. |
 | 2018 | July      | 26  | Calling me to tell me about exciting news in your job search. The excitement you show for the work you would be doing, and the people you would be doing it with. |
+| 2018 | July      | 27  | Hanging up my shirts and making my bed in the morning after having stayed the night because of trivia at Loon Liquors the night before. |
+| 2018 | July      | 28  | The care and support you show during my time of feeling down and out of things. |
+| 2018 | July      | 29  | The excitement shown upon parking outside of Fawn-Doe-Rosa. |
