@@ -49,3 +49,4 @@ My only regret is not thinking of this idea sooner.
 | 2018 | July      | 27  | Hanging up my shirts and making my bed in the morning after having stayed the night because of trivia at Loon Liquors the night before. |
 | 2018 | July      | 28  | The care and support you show during my time of feeling down and out of things. |
 | 2018 | July      | 29  | The excitement shown upon parking outside of Fawn-Doe-Rosa. |
+| 2018 | July      | 30  | Cuddling on the futon, watching videos of babies. |
