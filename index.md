@@ -50,3 +50,9 @@ My only regret is not thinking of this idea sooner.
 | 2018 | July      | 28  | The care and support you show during my time of feeling down and out of things. |
 | 2018 | July      | 29  | The excitement shown upon parking outside of Fawn-Doe-Rosa. |
 | 2018 | July      | 30  | Cuddling on the futon, watching videos of babies. And getting me cheesecake for national cheesecake day. |
+| 2018 | July      | 31  | Taking my call even when you were with a friend and things weren't the best. |
+| 2018 | August    |  1  | Making the most delicious flatbread. |
+| 2018 | August    |  2  | Going on a walk for Pokemon Go. Your joy at seeing duck friends. |
+| 2018 | August    |  3  | Driving to Northfield to pick me up after a shift at work so I could sleep over. |
+| 2018 | August    |  4  | Buying out Aldi of the watermelon sparkling coconut water. |
+| 2018 | August    |  5  | Encouraging me to start running again because I know it's good for me even if it is difficult to motivate myself to do. |
