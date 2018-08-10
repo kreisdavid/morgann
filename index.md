@@ -56,3 +56,7 @@ My only regret is not thinking of this idea sooner.
 | 2018 | August    |  3  | Driving to Northfield to pick me up after a shift at work so I could sleep over. |
 | 2018 | August    |  4  | Buying out Aldi of the watermelon sparkling coconut water. |
 | 2018 | August    |  5  | Encouraging me to start running again because I know it's good for me even if it is difficult to motivate myself to do. |
+| 2018 | August    |  6  | Your approval at me having planned out and written down a plan for the week. |
+| 2018 | August    |  7  | Your early morning text encouraging my running. The encouragment helps so much. |
+| 2018 | August    |  8  | Our time waiting for our pizza at the Red Barn Pizza place, walking around, asking questions, seeing animals. |
+| 2018 | August    |  9  | Your reactions to animals at the zoo! And it was just a great time in general. |
