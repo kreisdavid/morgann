@@ -60,3 +60,4 @@ My only regret is not thinking of this idea sooner.
 | 2018 | August    |  7  | Your early morning text encouraging my running. The encouragment helps so much. |
 | 2018 | August    |  8  | Our time waiting for our pizza at the Red Barn Pizza place, walking around, asking questions, seeing animals. |
 | 2018 | August    |  9  | Your reactions to animals at the zoo! And it was just a great time in general. |
+| 2018 | August    | 10  | Making me meals (plural!) while I did my work from your desk. |
