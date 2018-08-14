@@ -61,3 +61,7 @@ My only regret is not thinking of this idea sooner.
 | 2018 | August    |  8  | Our time waiting for our pizza at the Red Barn Pizza place, walking around, asking questions, seeing animals. |
 | 2018 | August    |  9  | Your reactions to animals at the zoo! And it was just a great time in general. |
 | 2018 | August    | 10  | Making me meals (plural!) while I did my work from your desk. |
+| 2018 | August    | 11  | Cutting (so much!) fruit with you. |
+| 2018 | August    | 12  | Playing in the water at the beach! |
+| 2018 | August    | 13  | Saying that spending time with me had made you forget all about how your day had started off so shitty. |
+| 2018 | August    | 14  | Storming out of my room with a pretend angry face when I tagged you in the facebook post. |
