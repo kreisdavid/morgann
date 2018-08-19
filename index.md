@@ -65,3 +65,7 @@ My only regret is not thinking of this idea sooner.
 | 2018 | August    | 12  | Playing in the water at the beach! |
 | 2018 | August    | 13  | Saying that spending time with me had made you forget all about how your day had started off so shitty. |
 | 2018 | August    | 14  | Storming out of my room with a pretend angry face when I tagged you in the facebook post. |
+| 2018 | August    | 15  | The support given when things at work aren't always going great for me. |
+| 2018 | August    | 16  | Coming out to kiss me before bed when I was out on the futon. |
+| 2018 | August    | 17  | Our time at Surly and you trying to like beer. |
+| 2018 | August    | 18  | Waking up next to you and seeing your smiling face and hearing your laugh. |
