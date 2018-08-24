@@ -69,3 +69,8 @@ My only regret is not thinking of this idea sooner.
 | 2018 | August    | 16  | Coming out to kiss me before bed when I was out on the futon. |
 | 2018 | August    | 17  | Our time at Surly and you trying to like beer. |
 | 2018 | August    | 18  | Waking up next to you and seeing your smiling face and hearing your laugh. |
+| 2018 | August    | 19  | When you asked if I was sick of you having spent most of the last three days - two sleepovers - together. (Of course I was not!) |
+| 2018 | August    | 20  | The build up/count down to my birthday. |
+| 2018 | August    | 21  | My birthday present (you remembered from our 9th date!) and taking me out for a drink after. |
+| 2018 | August    | 22  | Refusing to choose the obvious answer in HQ Trivia because the correct answer was meat... |
+| 2018 | August    | 23  | Filling out your forms to accept your job! |
