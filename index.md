@@ -74,3 +74,6 @@ My only regret is not thinking of this idea sooner.
 | 2018 | August    | 21  | My birthday present (you remembered from our 9th date!) and taking me out for a drink after. |
 | 2018 | August    | 22  | Refusing to choose the obvious answer in HQ Trivia because the correct answer was meat... |
 | 2018 | August    | 23  | Filling out your forms to accept your job! |
+| 2018 | August    | 24  | You made me cheesecake!! And it was so delicious! I couldn't believe it was your first time making it. |
+| 2018 | August    | 25  | Going to the Cheese Cave, your excitement at the different cheeses, and just a wonderful time overall. |
+| 2018 | August    | 26  | Your compliments on the meals I made, and eating and playing cards out on my porch. |
