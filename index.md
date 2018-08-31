@@ -77,3 +77,7 @@ My only regret is not thinking of this idea sooner.
 | 2018 | August    | 24  | You made me cheesecake!! And it was so delicious! I couldn't believe it was your first time making it. |
 | 2018 | August    | 25  | Going to the Cheese Cave, your excitement at the different cheeses, and just a wonderful time overall. |
 | 2018 | August    | 26  | Your compliments on the meals I made, and eating and playing cards out on my porch. |
+| 2018 | August    | 27  | For some reason I was reflecting back on how high school David had imagined his life going and was struck by how back then I didn't think about certain aspects of my future and how thankful I am now that you are a part of my life and how I am that that is the case. |
+| 2018 | August    | 28  | Booking a hotel to stay with you in for the ultimate tournament in Grinnell! |
+| 2018 | August    | 29  | Going out for a walk, doing Pokemon go research, and the (hopefully) affectionate (but very hard) bites on my arm (that are still visible the next day) |
+| 2018 | August    | 30  | Talking to you during my walk after work (and hindering my Eevee research progress) |
