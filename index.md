@@ -81,3 +81,10 @@ My only regret is not thinking of this idea sooner.
 | 2018 | August    | 28  | Booking a hotel to stay with you in for the ultimate tournament in Grinnell! |
 | 2018 | August    | 29  | Going out for a walk, doing Pokemon go research, and the (hopefully) affectionate (but very hard) bites on my arm (that are still visible the next day) |
 | 2018 | August    | 30  | Talking to you during my walk after work (and hindering my Eevee research progress) |
+| 2018 | August    | 31  | Seeing you (and getting to hug you) after a long week and knowing I'd be staying with you multiple nights! Just so excited for a weekend with you. |
+| 2018 | September |  1  | Laying down together at the state fair after getting our cheese curds. |
+| 2018 | September |  2  | Kayaking with you. So much joy and fun. |
+| 2018 | September |  3  | Going over your work materials (health insurance and such) with you. It was certainly a stressful event, and I hope my presence and advice was helpful, but I could tell there was underlying excitement about the job. |
+| 2018 | September |  4  | How you made me feel after I realized that I was bad at recommending computers. I felt real bad, but you were comforting and understanding. |
+| 2018 | September |  5  | Being there for me when I was real down about work. My stresses and worries and anxieties flowed away as I drove to you, and with you I felt so loved, comforted, understood, and cared for. |
+| 2018 | September |  6  | Hearing about how your new job is going and showing me the test program that would mirror what you will be doing at your job. |
