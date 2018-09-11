@@ -88,3 +88,7 @@ My only regret is not thinking of this idea sooner.
 | 2018 | September |  4  | How you made me feel after I realized that I was bad at recommending computers. I felt real bad, but you were comforting and understanding. |
 | 2018 | September |  5  | Being there for me when I was real down about work. My stresses and worries and anxieties flowed away as I drove to you, and with you I felt so loved, comforted, understood, and cared for. |
 | 2018 | September |  6  | Hearing about how your new job is going and showing me the test program that would mirror what you will be doing at your job. |
+| 2018 | September |  7  | Pouring empty drinks (with all the ice left in them) down my back at the armory square. |
+| 2018 | September |  8  | Staying overnight friday, coming out to where I was asleep on the futon and waking me with kisses. |
+| 2018 | September |  9  | Cuddling before heading out to Target and Aldi, so comfortable, so much love. |
+| 2018 | September | 10  | The snapchats from you at work and in your office. So fun to see you at a workplace that you enjoy being in. |
