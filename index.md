@@ -97,6 +97,6 @@ My only regret is not thinking of this idea sooner.
 | 2018 | September | 13  | Telling me all about a call to a family that you were warned would be difficult and having them love you after a single phone call. I was zero percent surprised, but incredibly happy to hear. |
 | 2018 | September | 14  | Getting to surprise you with the huge tub in our hotel room. |
 | 2018 | September | 15  | You sitting out in the sun and heat to watch your out of shape boyfriend play frisbee against college kids. And getting me water! (important stuff) |
-| 2018 | September | 16  | stuff after getting back 
+| 2018 | September | 16  | Cuddling on my futon, watching Game of Thrones as the culmination of a great weekend with you. |
 | 2018 | September | 17  | Hearing about how you got high schoolers to take to you at the open house. |
 | 2018 | September | 18  | 9 months since we met! Going to Target (a classic), eating a delicious meal, cuddling on your couch. |
