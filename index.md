@@ -100,3 +100,9 @@ My only regret is not thinking of this idea sooner.
 | 2018 | September | 16  | Cuddling on my futon, watching Game of Thrones as the culmination of a great weekend with you. |
 | 2018 | September | 17  | Hearing about how you got high schoolers to take to you at the open house. |
 | 2018 | September | 18  | 9 months since we met! Going to Target (a classic), eating a delicious meal, cuddling on your couch. |
+| 2018 | September | 19  | You trying to scam me with words and your reaction to my response. |
+| 2018 | September | 20  | Having dinner with my parents and then going for a walk after. |
+| 2018 | September | 21  | Just being near you when you fell asleep on the couch watching Game of Thrones and trying all sorts of sleeping locations and eventually just giving up and realizing I would not get as comfortable as you out there and then not even really needing to sleep anyway, so just having to spend a lot of time with my thoughts, and being flooded with reasons I love you and good experience I have with you. |
+| 2018 | September | 22  | Gushing about fall. |
+| 2018 | September | 23  | Driving me to the airport and sending me off. |
+| 2018 | September | 24  | Showing me your three silly putties all mixed together. |
