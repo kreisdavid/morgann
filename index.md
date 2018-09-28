@@ -105,4 +105,7 @@ My only regret is not thinking of this idea sooner.
 | 2018 | September | 21  | Just being near you when you fell asleep on the couch watching Game of Thrones and trying all sorts of sleeping locations and eventually just giving up and realizing I would not get as comfortable as you out there and then not even really needing to sleep anyway, so just having to spend a lot of time with my thoughts, and being flooded with reasons I love you and good experience I have with you. |
 | 2018 | September | 22  | Gushing about fall. |
 | 2018 | September | 23  | Driving me to the airport and sending me off. |
-| 2018 | September | 24  | Showing me your three silly putties all mixed together. |
+| 2018 | September | 24  | Showing me your three silly putties all mixed together, and your reaction to them and how jubilated you looked. |
+| 2018 | September | 25  | Keeping me company (via phone) on my walk to the Sprint store. Was great to hear about your day and for me to spout off about dongles and my opinion on I/O form standards. |
+| 2018 | September | 26  | Facetiming. Such a simple thing, but so wonderful when I am away for work and can't be with you. Being able to talk and see you and your actions in real time is great always, but especially appreciated when I am away. |
+| 2018 | September | 27  | Calling me in the morning because you had fallen asleep on your couch in the early evening, and therefore didn't get the chance to say goodnight the night before because I had been out catching up with Ian in Charlottesville and by the time I got back you were asleep and then when I went to sleep you weren't awake yet. |
