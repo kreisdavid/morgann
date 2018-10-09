@@ -110,3 +110,14 @@ My only regret is not thinking of this idea sooner.
 | 2018 | September | 26  | Facetiming. Such a simple thing, but so wonderful when I am away for work and can't be with you. Being able to talk and see you and your actions in real time is great always, but especially appreciated when I am away. |
 | 2018 | September | 27  | Calling me in the morning because you had fallen asleep on your couch in the early evening, and therefore didn't get the chance to say goodnight the night before because I had been out catching up with Ian in Charlottesville and by the time I got back you were asleep and then when I went to sleep you weren't awake yet. |
 | 2018 | September | 28  | Hearing about you walking the first grader to class and helping a little girl find her lunch pin. You just have this wonderful, glowing energy about you when you talk about helping students at your job, and it is just so great to see and hear that. |
+| 2018 | September | 29  | Getting over fears, talking about feelings, and cuddling on my bed. |
+| 2018 | September | 30  | Not messing up your blankets (for once) and feeling so good about it. |
+| 2018 | October   |  1  | Calling me after a day where we didn't see each other, and talking about the future. |
+| 2018 | October   |  2  | Getting coffee for you with my own Caribou Perks account, and your excitement at redeeming your points for a bag of beans. |
+| 2018 | October   |  3  | Doing a facemask with you. I maintain that it only really reminded me of chocolate. |
+| 2018 | October   |  4  | Cuddling you after a fight and all of a sudden it was 2am. Time had flown by because I was with the one I love. |
+| 2018 | October   |  5  | Driving to La Crosse! Beautiful drive, beautiful girlfriend. |
+| 2018 | October   |  6  | Having fun in the photo booth, feeling some type of way attending a wedding and reception with you. |
+| 2018 | October   |  7  | A feeling of love and joy in the Charmant as we had our drinks, enjoyed our cheese plate, and basked in the happiness of the weekend together. |
+| 2018 | October   |  8  | Cuddling and tickling in your bed. |
+
