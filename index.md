@@ -120,4 +120,6 @@ My only regret is not thinking of this idea sooner.
 | 2018 | October   |  6  | Having fun in the photo booth, feeling some type of way attending a wedding and reception with you. |
 | 2018 | October   |  7  | A feeling of love and joy in the Charmant as we had our drinks, enjoyed our cheese plate, and basked in the happiness of the weekend together. |
 | 2018 | October   |  8  | Cuddling and tickling in your bed. |
-
+| 2018 | October   |  9  | Getting to see your school and your office! |
+| 2018 | October   | 10  | When you called me, and told me the reason you called me was because talking to me made you feel better. It felt so good to hear you say that, and to know that you were feeling better after what was going on at work for you. |
+| 2018 | October   | 11  | Your appreciation when I brought you coffee while you were at conferences. (Even though I messed up your coffee order) |
