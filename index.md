@@ -123,3 +123,15 @@ My only regret is not thinking of this idea sooner.
 | 2018 | October   |  9  | Getting to see your school and your office! |
 | 2018 | October   | 10  | When you called me, and told me the reason you called me was because talking to me made you feel better. It felt so good to hear you say that, and to know that you were feeling better after what was going on at work for you. |
 | 2018 | October   | 11  | Your appreciation when I brought you coffee while you were at conferences. (Even though I messed up your coffee order) |
+| 2018 | October   | 12  | Going out for Luke's birthday, heading to Econo and finding a single bottle of lavender kombucha. |
+| 2018 | October   | 13  | The apple orchard! Drinking cider and admiring apples. |
+| 2018 | October   | 14  | Your amusement when one of those recipe videos on facebook lied to me. |
+| 2018 | October   | 15  | Joking that you wanted 4 friends to complain to about how I ain't shit after you watched a show on polygamy. |
+| 2018 | October   | 16  | You asking if my mom had told me about stopping in to see you at work, which, sure enough, was the first thing she said to me when she got home. |
+| 2018 | October   | 17  | Creating the character of Herb. Who only drinks locally sourced coffee beans and lives in a gentrified neighborhood in the middle of the city. |
+| 2018 | October   | 18  | Having dinner with you and my family! That I made! And how you absolutely asserted that it was me that made it when my family started to give you a lot of the credit. |
+| 2018 | October   | 19  | Getting really nice pictures of the two of us together at the apple orchard! Having a great time there even though I got apples thrown at me. |
+| 2018 | October   | 20  | Spending a fun day trading pokemon and watching movies. |
+| 2018 | October   | 21  | Hearing your thoughts on Designated Survivor as you watch it. Fun and interesting. |
+| 2018 | October   | 22  | When you realized that you had an excellent time cooking with me and hadn't said anything until some time later. | 
+| 2018 | October   | 23  | Your contagious and constant laughter at your own jokes over facetime. |
