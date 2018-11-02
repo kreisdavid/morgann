@@ -135,3 +135,12 @@ My only regret is not thinking of this idea sooner.
 | 2018 | October   | 21  | Hearing your thoughts on Designated Survivor as you watch it. Fun and interesting. |
 | 2018 | October   | 22  | When you realized that you had an excellent time cooking with me and hadn't said anything until some time later. | 
 | 2018 | October   | 23  | Your contagious and constant laughter at your own jokes over facetime. |
+| 2018 | October   | 24  | Doing facemasks with you. |
+| 2018 | October   | 25  | Scaring me after I came back from helping my neighbors with computer stuff. |
+| 2018 | October   | 26  | Getting your plants at IKEA, such a proud plant mother. |
+| 2018 | October   | 27  | Carving pumpkins with you! |
+| 2018 | October   | 28  | Your excitement at going to the opening of homegoods in cottage grove. |
+| 2018 | October   | 29  | Making fun of my working environment with a cute and sassy snapchat. |
+| 2018 | October   | 30  | Your kind method of improvising when tweezers weren't available. You really did attempt to limit the pain, despite my reactions. |
+| 2018 | October   | 31  | Eating dinner with you and my family. And how cute it was when you handed out candy to trick-or-treaters. |
+| 2018 | October   |  1  | Cuddle-sleeping on my futon. And that you came back to do so. |
