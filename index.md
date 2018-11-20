@@ -143,4 +143,21 @@ My only regret is not thinking of this idea sooner.
 | 2018 | October   | 29  | Making fun of my working environment with a cute and sassy snapchat. |
 | 2018 | October   | 30  | Your kind method of improvising when tweezers weren't available. You really did attempt to limit the pain, despite my reactions. |
 | 2018 | October   | 31  | Eating dinner with you and my family. And how cute it was when you handed out candy to trick-or-treaters. |
-| 2018 | October   |  1  | Cuddle-sleeping on my futon. And that you came back to do so. |
+| 2018 | November  |  1  | Cuddle-sleeping on my futon. And that you came back to do so. |
+| 2018 | November  |  2  | Finishing work at your place, and our hug when I got there. |
+| 2018 | November  |  3  | Getting your location back! |
+| 2018 | November  |  4  | Cuddling you in the morning at my house. |
+| 2018 | November  |  5  | Getting the Old Navy site to work for you, with my magic computer science talents. |
+| 2018 | November  |  6  | Doing my civic duty and bringing you coffee at work. |
+| 2018 | November  |  7  | How you let me know that I can be there for you, and letting me in to comfort you when in need. |
+| 2018 | November  |  8  | Being all cuddled up and not even noticing falling asleep. |
+| 2018 | November  |  9  | Your worry for me when I drove home in the snowy conditions, and keeping track of me as I drove. |
+| 2018 | November  | 10  | Giving Marcel a bath and getting those cute pictures of you and him. |
+| 2018 | November  | 11  | Going to an open house, a sense of excitement thinking of our future together. |
+| 2018 | November  | 12  | Your resilience to your living situation and Shelly's ridiculous message. |
+| 2018 | November  | 13  | The care you show me despite the level of urgency in your own situation. |
+| 2018 | November  | 14  | Having dinner with you and my grandma. |
+| 2018 | November  | 15  | That you thought I might be sick of you after the last few days having stayed over. |
+| 2018 | November  | 16  | Your continued patience. |
+| 2018 | November  | 17  | Mocking my karaoke and doing a bit of your own. |
+| 2018 | November  | 18  | You are just so supportive and exhbit so much love to me even in difficult times. |
