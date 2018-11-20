@@ -161,3 +161,4 @@ My only regret is not thinking of this idea sooner.
 | 2018 | November  | 16  | Your continued patience. |
 | 2018 | November  | 17  | Mocking my karaoke and doing a bit of your own. |
 | 2018 | November  | 18  | You are just so supportive and exhbit so much love to me even in difficult times. |
+| 2018 | November  | 19  | Hearing about your day at work and your joy at the kids you were helping. I was overcome with my love for you and was crying as we talked, even in a really overwhelming day for me, just talking to you makes me feel so much better. |
