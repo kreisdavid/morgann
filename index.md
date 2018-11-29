@@ -162,3 +162,11 @@ My only regret is not thinking of this idea sooner.
 | 2018 | November  | 17  | Mocking my karaoke and doing a bit of your own. |
 | 2018 | November  | 18  | You are just so supportive and exhbit so much love to me even in difficult times. |
 | 2018 | November  | 19  | Hearing about your day at work and your joy at the kids you were helping. I was overcome with my love for you and was crying as we talked, even in a really overwhelming day for me, just talking to you makes me feel so much better. |
+| 2018 | November  | 20  | Ridiculing me for my lack of ability as a hype man. |
+| 2018 | November  | 21  | You made a pie for thanksgiving for me! |
+| 2018 | November  | 22  | Having thanksgiving with my family and part of yours. |
+| 2018 | November  | 23  | Getting to try your homemade applesauce, very tasty. Talking out troubles and growing stronger together. |
+| 2018 | November  | 24  | Having thanksgiving on your dad's side of your family and having your great stuffing and interacting with members of your family. |
+| 2018 | November  | 25  | When going to hastings, bringing you coffee, and being there for you on a bad day, I feel such love from you and have so much love for you that I can be there for you. |
+| 2018 | November  | 26  | Working together to help Marcel get the avocado that was stuck in his mouth out. |
+| 2018 | November  | 27  | Texting me that you had a cute kiddo story and wanting to call at work to tell me about it. |
