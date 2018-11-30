@@ -170,3 +170,5 @@ My only regret is not thinking of this idea sooner.
 | 2018 | November  | 25  | When going to hastings, bringing you coffee, and being there for you on a bad day, I feel such love from you and have so much love for you that I can be there for you. |
 | 2018 | November  | 26  | Working together to help Marcel get the avocado that was stuck in his mouth out. |
 | 2018 | November  | 27  | Texting me that you had a cute kiddo story and wanting to call at work to tell me about it. |
+| 2018 | November  | 28  | When you asked facebook where you would find true love in 2019 and it said "He is by your side already and always will be." |
+| 2018 | November  | 29  | Playing games at the Spiral Brewery! Even though you accused me of cheating... |
