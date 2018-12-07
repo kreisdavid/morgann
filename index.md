@@ -172,3 +172,9 @@ My only regret is not thinking of this idea sooner.
 | 2018 | November  | 27  | Texting me that you had a cute kiddo story and wanting to call at work to tell me about it. |
 | 2018 | November  | 28  | When you asked facebook where you would find true love in 2019 and it said "He is by your side already and always will be." |
 | 2018 | November  | 29  | Playing games at the Spiral Brewery! Even though you accused me of cheating... |
+| 2018 | November  | 30  | Your national or global cisis plan of meeting in Vermillion. Because of cheap gas. Because that will definitely still be the case in a national or global crisis. |
+| 2018 | December  |  1  | Coming back to my house due to dangerous road conditions despite what was happening. |
+| 2018 | December  |  2  | Your excitement about my Christmas gift. Apparently either the greatest or worst thing ever. |
+| 2018 | December  |  3  | Sending me pictures of you at work having dressed with the intent of asserting your power and authority. Even though the person didn't show up. |
+| 2018 | December  |  4  | Trying to get me to be able to tell the difference between the Jonas brothers. |
+| 2018 | December  |  5  | Creative ways to help me get out of bed and start my day sooner. |
