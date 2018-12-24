@@ -178,3 +178,21 @@ My only regret is not thinking of this idea sooner.
 | 2018 | December  |  3  | Sending me pictures of you at work having dressed with the intent of asserting your power and authority. Even though the person didn't show up. |
 | 2018 | December  |  4  | Trying to get me to be able to tell the difference between the Jonas brothers. |
 | 2018 | December  |  5  | Creative ways to help me get out of bed and start my day sooner. |
+| 2018 | December  |  6  | Falling asleep on facetime together. |
+| 2018 | December  |  7  | Cutting open that sqishy thing and playing with the goop. |
+| 2018 | December  |  8  | The unexpected strong reaction to my opinion on the bullseye playground. Then again I shouldn't be surprised with how much you like Target. |
+| 2018 | December  |  9  | Your patience in my lateness as I once again underestimate the time it takes to eat a meal with my grandma. |
+| 2018 | December  | 10  | Facetiming while I was packing, poking fun of me for things I have kept. |
+| 2018 | December  | 11  | Decorating christmas cookies! Lots of fun competition. |
+| 2018 | December  | 12  | Tallying up the final results of our cookie decorating competition. Even though yours rated higher. |
+| 2018 | December  | 13  | "I led you into my castle, you touched my beans, and now you're dead." Funny little stuff like this that provide a moment of "where did that come from" humor. |
+| 2018 | December  | 14  | Bringing you coffee at work, how appreciative you were. |
+| 2018 | December  | 15  | Going skating at rice park, and then Marlon's party. | 
+| 2018 | December  | 16  | Having plant based brunches with wonderful company. |
+| 2018 | December  | 17  | Sending me videos about dating someone with anxiety. Not something that you should have had to do... but looking back, a touching gesture of your commitment to our relationship. |
+| 2018 | December  | 18  | A year from when we first met! Getting coffee at Hideaway, where we had our first date! Enjoy seeing how far we have come and what a wonderful relationship with the most amazing person has formed. |
+| 2018 | December  | 19  | Couldn't hold out until christmas, so giving me such thoughful and wonderful presents. And accidentally falling asleep cuddled up. |
+| 2018 | December  | 20  | Seeing you interact with the kids at Henry Sibley despite just how horrible you were feeling. If they didn't catch on, I woudn't be surprised. |
+| 2018 | December  | 21  | Staying at your place, doing what I could to make you feel better, you poor sick bean. |
+| 2018 | December  | 22  | Christmas with your family, playing with the little ones. |
+| 2018 | December  | 23  | Getting gifts for family members with you, going through Cossetta's despite the bustle, being your creative self and making candles and bath salts. |
