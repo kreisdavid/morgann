@@ -196,3 +196,7 @@ My only regret is not thinking of this idea sooner.
 | 2018 | December  | 21  | Staying at your place, doing what I could to make you feel better, you poor sick bean. |
 | 2018 | December  | 22  | Christmas with your family, playing with the little ones. |
 | 2018 | December  | 23  | Getting gifts for family members with you, going through Cossetta's despite the bustle, being your creative self and making candles and bath salts. |
+| 2018 | December  | 24  | The patience you had with me driving and parking and getting things set up at my grandma's house because it certainly was quite hectic, as the holidays unfortunately are. Also very much enjoyed spending christmas with my family with you. |
+| 2018 | December  | 25  | Cuddling up in the theater, despite our unfortunate positioning in the front row. |
+| 2018 | December  | 26  | Your care for me thinking about the weather and how much snow we were maybe going to get as I was going out to spend time with some friends. |
+| 2018 | December  | 27  | Playing cards, a good amount of competition, and sharing another christmas celebration together. |
