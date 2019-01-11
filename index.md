@@ -204,3 +204,13 @@ My only regret is not thinking of this idea sooner.
 | 2018 | December  | 29  | Calling me just because you are so in love with "the greatest human on earth" that you couldn't contain it anymore and needed to tell someone. |
 | 2018 | December  | 30  | Coming over to my house and really whipping me into shape to get packed, not only the things that I will be moving out with the next day (which were mostly done), but also super importantly the stuff I am not planning on taking that will have to be packed up when my parents move to their new house. Your delegation and patience, yet persistence to get me to put it all away in boxes, saving me a lot of time in the future. (Also 50 Shades of GC, cannot leave that out) |
 | 2018 | December  | 31  | Putting up with the hectic move in, putting your bed together as I abandoned you on a target run (it felt so bad to leave you alone for that long, and also do it while being at target. I felt so guilty.), and just being the most amazing girlfriend in existence. I am so in love with you. Happy new year my love <3 |
+| 2019 | January   |  1  | The dedication to getting Erik in a good spot after he went too hard new year's eve. Even though it was 2am (and then 3, and then maybe 4am). | 
+| 2019 | January   |  2  | Your excitement and humor over your raise! Working your way up in the world, starting 2019 off right! |
+| 2019 | January   |  3  | Seeing your pride and joy, the room with all your food and clothes at Henry Sibley. You put such care and effort into that room, and even more into supporting the kids and their families. You are amazing at what you do. |
+| 2019 | January   |  4  | You convincing me to get a really good cutting board at IKEA. It is lovely and I am proud of it. |
+| 2019 | January   |  5  | Winehaven! Lovely date, great deal on tasters, a lovely cheese board, and then dropping $99.99 on wine. And making up for date night, eating good food and doing fun activities. |
+| 2019 | January   |  6  | Going to Trio with you, eating a wonderful meal with wonderful company. |
+| 2019 | January   |  7  | Your reaction to me voicing my interest at the fate of Google Glass. |
+| 2019 | January   |  8  | Sending me super cute snaps of you running around with your kiddos. Just again such a demonstration of how excellent you are at your job and what care you have. |
+| 2019 | January   |  9  | Going through and selecting my 4 (or 6, or more) favorite pictures of the two of us and reminiscing with you. |
+| 2019 | January   | 10  | Celebrating. Making good grilled cheese and apple, and hanging in the living room with Erik and Robyn on the phone. |
