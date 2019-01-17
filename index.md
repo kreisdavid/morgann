@@ -214,3 +214,9 @@ My only regret is not thinking of this idea sooner.
 | 2019 | January   |  8  | Sending me super cute snaps of you running around with your kiddos. Just again such a demonstration of how excellent you are at your job and what care you have. |
 | 2019 | January   |  9  | Going through and selecting my 4 (or 6, or more) favorite pictures of the two of us and reminiscing with you. |
 | 2019 | January   | 10  | Celebrating. Making good grilled cheese and apple, and hanging in the living room with Erik and Robyn on the phone. |
+| 2019 | January   | 11  | Staying overnight at my apartment and leaving for work in the morning, being worried that you were being too loud just because you sneezed as you were leaving. |
+| 2019 | January   | 12  | Going to the herbivorous butcher, finding so many good fidgits for your kiddos. |
+| 2019 | January   | 13  | Eating at a lovely breakfast spot, and then playing a competitive game of Catan, which you picked up very quickly. |
+| 2019 | January   | 14  | Your faith in me to solve any technology issue, even when most of the time I am going at it with just as much knowledge as yourself. |
+| 2019 | January   | 15  | Putting up with me putting corn in our pasta dish (and trying it, more than one bite!) |
+| 2019 | January   | 16  | Not giving up when the times we were ready to talk weren't aligning. |
