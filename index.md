@@ -220,3 +220,17 @@ My only regret is not thinking of this idea sooner.
 | 2019 | January   | 14  | Your faith in me to solve any technology issue, even when most of the time I am going at it with just as much knowledge as yourself. |
 | 2019 | January   | 15  | Putting up with me putting corn in our pasta dish (and trying it, more than one bite!) |
 | 2019 | January   | 16  | Not giving up when the times we were ready to talk weren't aligning. |
+| 2019 | January   | 17  | Putting lotion on your legs, and you dragging me with how much I don't enjoy having things on my hands. |
+| 2019 | January   | 18  | Going to northfield with you for my grandma's birthday. |
+| 2019 | January   | 19  | Taking another stop at the herbivorous butcher for another of those delicious sandwhiches before they went away, and finding lovely art for your office. |
+| 2019 | January   | 20  | Your care for me when I got a flat tire shortly after leaving your place. And it was -2 out. And 11pm. I got through it, but I knew that if things weren't working out, you'd be there for me. |
+| 2019 | January   | 21  | Surprise planning a trip to alaska out of nowhere. |
+| 2019 | January   | 22  | You put my picture up on your wall in your office. In the form of a baseball card of mine from when I was under 10 years old. |
+| 2019 | January   | 23  | You trying to take pictures of marcel when he was on your bed during our facetime call. He was on the move, but you still got some cute ones. |
+| 2019 | January   | 24  | Seeing you in hastings, getting to watch more game of thrones cuddled together. |
+| 2019 | January   | 25  | Seeing your new office in person! SO well organized, and I couldn't believe that all that stuff came from your previous tiny office. It's so good that you got more space, and you have already done amazing with it even with all those spare desks in the way. |
+| 2019 | January   | 26  | Seeing The Little Mermaid in theaters with you. I got to be the one to take you to see your absolute favorite movie in theaters for the first time! Me! |
+| 2019 | January   | 27  | "I deadass wanna love you for the rest of my life so... Don't die sooner than me asshole." |
+| 2019 | January   | 28  | Your 4am "I love you" message to me after your bad dream, and your plea to have an animal sanctuary in the future. |
+| 2019 | January   | 29  | Driving to me in the Polar Vortex. |
+| 2019 | January   | 30  | Working from home in the same room with you, both of us doing great work things and just being a productive, working couple in love. |
