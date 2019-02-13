@@ -234,3 +234,16 @@ My only regret is not thinking of this idea sooner.
 | 2019 | January   | 28  | Your 4am "I love you" message to me after your bad dream, and your plea to have an animal sanctuary in the future. |
 | 2019 | January   | 29  | Driving to me in the Polar Vortex. |
 | 2019 | January   | 30  | Working from home in the same room with you, both of us doing great work things and just being a productive, working couple in love. |
+| 2019 | January   | 31  | Appreciating my joke about my tall Alaskan amber. |
+| 2019 | February  |  1  | (This is of course just me poking fun at you, so please read as such) Finishing work, driving to Hastings excited to see you, and then listening to you on the phone for an hour. |
+| 2019 | February  |  2  | Going to a winery and then brewery in Stillwater. Somehow not being impressed by the wine tasting, but liking all 5 beers in our flight! |
+| 2019 | February  |  3  | Making such yummy snacks for the super bowl. |
+| 2019 | February  |  4  | Having me call your office to play a part in a meme. Or something. I still don't fully know what happened. But was glad I could help. |
+| 2019 | February  |  5  | Doing taxes together over facetime. |
+| 2019 | February  |  6  | Both of us taking steps back, regrouping, having patience even when it may not seem like it. |
+| 2019 | February  |  7  | Talking you out of believing in everything you read about what it means to be a Pisces, though it was right on being too compassionate for your own good. |
+| 2019 | February  |  8  | Having a wonderful meal planned for you, and asking you to bring me ingredients, and it turning out great. |
+| 2019 | February  |  9  | Trying out the Rebel Room and having a lovely night out with the beautiful love of my life. |
+| 2019 | February  | 10  | Going to the ice castle! Lots of fun, despite the cold, and then checking out little shops on the way back to the car. |
+| 2019 | February  | 11  | Couldn't wait until the 14th, had to show what you had gotten me early. But wow, such a wonderful, funny, cute, and touching gift. I love you so much. |
+| 2019 | February  | 12  | Trying to convince you not to buy things at target, but you didn't listen to me, but you did get really cute stuff for your kiddos, and they are going to love them and you are just the sweetest. |
