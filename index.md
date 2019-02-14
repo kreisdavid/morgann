@@ -247,3 +247,4 @@ My only regret is not thinking of this idea sooner.
 | 2019 | February  | 10  | Going to the ice castle! Lots of fun, despite the cold, and then checking out little shops on the way back to the car. |
 | 2019 | February  | 11  | Couldn't wait until the 14th, had to show what you had gotten me early. But wow, such a wonderful, funny, cute, and touching gift. I love you so much. |
 | 2019 | February  | 12  | Trying to convince you not to buy things at target, but you didn't listen to me, but you did get really cute stuff for your kiddos, and they are going to love them and you are just the sweetest. |
+| 2019 | February  | 13  | I had seen part of it already, but that didn't make it any less special to open the super cute, incredibly thoughful, and watery-eye inducing valentine's gift you got for me. |
