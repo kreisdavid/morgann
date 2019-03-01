@@ -248,3 +248,18 @@ My only regret is not thinking of this idea sooner.
 | 2019 | February  | 11  | Couldn't wait until the 14th, had to show what you had gotten me early. But wow, such a wonderful, funny, cute, and touching gift. I love you so much. |
 | 2019 | February  | 12  | Trying to convince you not to buy things at target, but you didn't listen to me, but you did get really cute stuff for your kiddos, and they are going to love them and you are just the sweetest. |
 | 2019 | February  | 13  | I had seen part of it already, but that didn't make it any less special to open the super cute, incredibly thoughful, and watery-eye inducing valentine's gift you got for me. |
+| 2019 | February  | 14  | Eating a phenomenal vegan valentine's day meal with the love of my life. |
+| 2019 | February  | 15  | You undercutting your eye-watering point about not wanting to lose me and loving me forever by saying you didn't feel we could break up because you are in my family calendar a lot. (am aware that wasn't what you meant, I love you so much) |
+| 2019 | February  | 16  | Bonding after issues with jalapeños. |
+| 2019 | February  | 17  | Going to the animal shelter and petting all the good boys. |
+| 2019 | February  | 18  | Shopping at Aldi and picking out things to enjoy with you. |
+| 2019 | February  | 19  | Giving you your valentine's day present (only 5 days late) and seeing your face as you opened it. |
+| 2019 | February  | 20  | Introducing me to your podcast which you are really into, but is also a bit depressing. |
+| 2019 | February  | 21  | Hearing about your meeting with the dental clinic and how successful you are even when given such little time and no contact information. |
+| 2019 | February  | 22  | Making dinner for you and having it turn out great. I enjoy doing well at activities you routinely mock me at. |
+| 2019 | February  | 23  | Taking care of me after I ate too much cookie. |
+| 2019 | February  | 24  | Watching game of thrones, making and eating good food, and just recovering together. |
+| 2019 | February  | 25  | Bringing you your computer and going out to eat with you after work! |
+| 2019 | February  | 26  | Just being around you after a downer of a day. A downer with no explanation, but getting through the day with the knowledge I'd get to see you after, and then actually getting to see you. |
+| 2019 | February  | 27  | Thankful for the times I got to facetime you on a day when you were with Teghan and I know how important it is for you to be there for her, especially now. |
+| 2019 | February  | 28  | Chatting via facetime after a difficult day for you. Felt really good to see you opening up and getting it out there and (at least looking like) starting to feel a bit better. |
