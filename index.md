@@ -263,3 +263,10 @@ My only regret is not thinking of this idea sooner.
 | 2019 | February  | 26  | Just being around you after a downer of a day. A downer with no explanation, but getting through the day with the knowledge I'd get to see you after, and then actually getting to see you. |
 | 2019 | February  | 27  | Thankful for the times I got to facetime you on a day when you were with Teghan and I know how important it is for you to be there for her, especially now. |
 | 2019 | February  | 28  | Chatting via facetime after a difficult day for you. Felt really good to see you opening up and getting it out there and (at least looking like) starting to feel a bit better. |
+| 2019 | March     |  1  | You told me to take a picture of you of your reaction to all your sneezing, and right as I was taking it, you were about to sneeze, but then I had the flash on and it stopped the sneeze in its tracks. A funny moment, and a great picture. |
+| 2019 | March     |  2  | Going on a lovely date day with you to Sociable Cider Werks, the art museum, and of course stopping by the Herbivorous butcher. |
+| 2019 | March     |  3  | Finishing off a lovely weekend with a lovely person. Good feelings all around, especially your excitement at making your own squishies. Also they are awesome. |
+| 2019 | March     |  4  | Hearing about you being amazing, going out to handle things yourself when you are the only person that has their shit together about stocking the food pantry at your school. |
+| 2019 | March     |  5  | Making a reservation at a lovely restaurant for your birthday! |
+| 2019 | March     |  6  | Made a wonderful dinner with you in which you provided the key ingredient in deciding to get a little fancier with the tofu. |
+| 2019 | March     |  7  | Even though you had conferences on your birthday, getting to see you there and bringing you coffee and just seeing in person how much everyone there sees you for the treasure that you are. |
