@@ -270,3 +270,16 @@ My only regret is not thinking of this idea sooner.
 | 2019 | March     |  5  | Making a reservation at a lovely restaurant for your birthday! |
 | 2019 | March     |  6  | Made a wonderful dinner with you in which you provided the key ingredient in deciding to get a little fancier with the tofu. |
 | 2019 | March     |  7  | Even though you had conferences on your birthday, getting to see you there and bringing you coffee and just seeing in person how much everyone there sees you for the treasure that you are. |
+| 2019 | March     |  8  | Going out for your birthday dinner at a lovely restaurant, just the best place you could have picked for your birthday! |
+| 2019 | March     |  9  | Seeing the Rock and Roll Revival in northfield with you and my family. |
+| 2019 | March     | 10  | Cuddling with you after hard times. |
+| 2019 | March     | 11  | You coming to see me after work because you felt that I did the bulk of the driving most of the time (despite the very legitimate reasons there are for that. Plus it's no la crosse to grinnell distance) |
+| 2019 | March     | 12  | How you react to me saying the random overlooked thoughts that sometimes pop in my head. |
+| 2019 | March     | 13  | Getting toys for marcel and then hearing about how much he loves them! What a cutie that has such a cutie as a pet. |
+| 2019 | March     | 14  | Thinking of you while running to help me hit my goals. |
+| 2019 | March     | 15  | When you call me in the morning to make sure I've gotten (or will get) out of bed and start my day. I know in the moment I don't appreciate it as much as I do a few minutes later, so if I ever don't sound like I want to get those calls, just know that as soon as I'm up, I am appreciative. |
+| 2019 | March     | 16  | A fun St. Patrick's Day celebration with your family! |
+| 2019 | March     | 17  | Eating at a nice breakfast/brunch spot and really digging into your family tree (which will require much studying due to its size) |
+| 2019 | March     | 18  | Being on the same page about what things I stopped to get for us on my way to your place (you asking me to pick up cheese curds when I was on my way to do so) |
+| 2019 | March     | 19  | Seeing you in the morning and then again after work! Just makes me more excited for us to move in together. |
+| 2019 | March     | 20  | Providing me the motivation to continue my workout plan. And getting vegan cheese curds for us to share soon! |
