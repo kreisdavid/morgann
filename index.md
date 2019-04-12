@@ -283,3 +283,25 @@ My only regret is not thinking of this idea sooner.
 | 2019 | March     | 18  | Being on the same page about what things I stopped to get for us on my way to your place (you asking me to pick up cheese curds when I was on my way to do so) |
 | 2019 | March     | 19  | Seeing you in the morning and then again after work! Just makes me more excited for us to move in together. |
 | 2019 | March     | 20  | Providing me the motivation to continue my workout plan. And getting vegan cheese curds for us to share soon! |
+| 2019 | March     | 21  | Letting me know you love me after waking up at 5am after having a bad dream. |
+| 2019 | March     | 22  | Seeing the bags you made for your kiddos over spring break, you are so amazing and you do such great work that help so many people. |
+| 2019 | March     | 23  | Going to Fig + Farro for brunch, you being so nice to the seater that he gave us a free cinnamon roll, you being so forcefully nice to the guy giving out samples of beat brownies that he thought for a second you were upset at him, and sampling some nice wines from a great Groupon deal. |
+| 2019 | March     | 24  | Dating you (officially) for one full year! |
+| 2019 | March     | 25  | Texting me while you are in bed and I am in the bathroom because you miss me. |
+| 2019 | March     | 26  | Hearing about you filling in hours during spring break, just being the most helpful bean. |
+| 2019 | March     | 27  | Finding the cutest baby blanket at the salvation army and just having to get it. |
+| 2019 | March     | 28  | Heading to spend a long weekend in La Crosse for you do pass your wisdom on to the youths of your alma mater. |
+| 2019 | March     | 29  | Visiting the Starlight lounge for multiple types of flavorful drinks. |
+| 2019 | March     | 30  | Playing what do you meme and beating all three of you despite being the least knowledgable with pop culture. |
+| 2019 | March     | 31  | Having a lovely brunch at the Charmont, visiting the bluffs, finding your bitmoji pants, and you writing a lovely review for our cute little place for the weekend. |
+| 2019 | April     |  1  | The fact that the day I decided to hype you up on facebook happened to be april fools day. It was completely unintentional, I assure you. |
+| 2019 | April     |  2  | The excitement and encouragement you gave me as I finished up one project at work and got started up with another. |
+| 2019 | April     |  3  | Stumbling across a note you left for me in my phone. Wow, I'm so lucky to have you in my life. |
+| 2019 | April     |  4  | Your pride in me for making a nice dinner for Erik and myself. |
+| 2019 | April     |  5  | You are incredibly supportive when I voice my stresses and concerns and it really makes me feel way better. |
+| 2019 | April     |  6  | You accomplished so much, getting up early for your training, attending a home buying seminar, and getting an oil change, all before 3pm! |
+| 2019 | April     |  7  | When we are in bed together and you text me the scooter emoji. |
+| 2019 | April     |  8  | Getting a physical and my ears checked and just knowing how foolish I am for not listening to you. |
+| 2019 | April     |  9  | Both of us calling at roughly the same time to set up a showing for an apartment, and then realizing right after. |
+| 2019 | April     | 10  | Hearing about you being the most wonderful family support worker, going above and beyond for your kiddos. |
+| 2019 | April     | 11  | Sending me pictures during your snow day. |
