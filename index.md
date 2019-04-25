@@ -305,3 +305,16 @@ My only regret is not thinking of this idea sooner.
 | 2019 | April     |  9  | Both of us calling at roughly the same time to set up a showing for an apartment, and then realizing right after. |
 | 2019 | April     | 10  | Hearing about you being the most wonderful family support worker, going above and beyond for your kiddos. |
 | 2019 | April     | 11  | Sending me pictures during your snow day. |
+| 2019 | April     | 12  | Applying for our first apartment! |
+| 2019 | April     | 13  | Getting SUCH cute stuff for our apartment! The plates were still there! And and a great lamp and curtains and wine racks. |
+| 2019 | April     | 14  | Watching the start of the new game of thrones season with you! Despite the amount of setup it had. |
+| 2019 | April     | 15  | When we were each making our own dinners and you asked me what I was making so you could flex your dinner. |
+| 2019 | April     | 16  | Prodding me to get back out running now that it is nice outside, and having a really good run and getting to thank you for it. |
+| 2019 | April     | 17  | Getting clarification on our apartment application, finding out it was the mundane things we weren't worried about that was slowing the process down. |
+| 2019 | April     | 18  | The humorous way you told me about the part falling off your car. Good comedic timing of the texts. |
+| 2019 | April     | 19  | Just hanging out in the bierstube while you work. Bringing you coffee, generating interest in your section. Seeing you be the amazing person that you are. |
+| 2019 | April     | 20  | Seeing that goat run up to you in recognition, with the others to follow shortly after finding out you held food. |
+| 2019 | April     | 21  | Making a great dish to bring to Easter lunch at my church with my family. |
+| 2019 | April     | 22  | Finally completing the last step in our application, knowing that it was just my employment verification holding things up, with everything else approved. |
+| 2019 | April     | 23  | Finding out we got approved for our apartment! Such a happy time, especially after the trials it took to get approved. |
+| 2019 | April     | 24  | Being there for you in a difficult time and witnessing the stages of your feelings. You are amazing, and deserve far more than life has given you. |
