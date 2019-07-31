@@ -318,3 +318,53 @@ My only regret is not thinking of this idea sooner.
 | 2019 | April     | 22  | Finally completing the last step in our application, knowing that it was just my employment verification holding things up, with everything else approved. |
 | 2019 | April     | 23  | Finding out we got approved for our apartment! Such a happy time, especially after the trials it took to get approved. |
 | 2019 | April     | 24  | Being there for you in a difficult time and witnessing the stages of your feelings. You are amazing, and deserve far more than life has given you. |
+| 2019 | April     | 25  | 
+| 2019 | April     | 26  | 
+| 2019 | April     | 27  | 
+| 2019 | April     | 28  | got maybe?
+| 2019 | April     | 29  | twins game
+| 2019 | April     | 30  | 
+| 2019 | May       |  1  | 
+| 2019 | May       |  2  | brew master of place at stube
+| 2019 | May       |  3  | 
+| 2019 | May       |  4  | 
+| 2019 | May       |  5  | got?
+| 2019 | May       |  6  | 
+| 2019 | May       |  7  | 
+| 2019 | May       |  8  | recorder sounds
+| 2019 | May       |  9  | 
+| 2019 | May       | 10  | 
+| 2019 | May       | 11  | 
+| 2019 | May       | 12  | finding that picture of jamie to make the good tweet
+| 2019 | May       | 13  | 
+| 2019 | May       | 14  | 
+| 2019 | May       | 15  | MOVING DAY!
+| 2019 | May       | 16  | 
+| 2019 | May       | 17  | 
+| 2019 | May       | 18  | 
+| 2019 | May       | 19  | heading down to grinnell
+| 2019 | May       | 20  | grinnell graduation
+| 2019 | May       | 21  | 
+| 2019 | May       | 22  | 
+| 2019 | May       | 23  | 
+| 2019 | May       | 24  | You fell asleep on the couch (new couch?) ------------- and it just felt right to get a pillow and sleep on the floor next to you. |
+| 2019 | May       | 25  | 
+| 2019 | May       | 26  | Getting our imperfect produce box and seeing your excitement over everything we got. |
+| 2019 | May       | 27  | Taking a trip to a discount food store and finding Winehaven on the way. |
+| 2019 | May       | 28  | 
+| 2019 | May       | 29  | 
+| 2019 | May       | 30  | 
+| 2019 | May       | 31  | 
+| 2019 | June      |  1  | You getting the job at Caribou! |
+| 2019 | June      |  2  | You observing my plane watching joy. |
+| 2019 | June      |  3  | 
+| 2019 | June      |  4  | Picking up Chester! |
+| 2019 | June      |  5  | 
+| 2019 | June      |  6  | 
+| 2019 | June      |  7  | 
+| 2019 | June      |  8  | 
+| 2019 | June      |  9  | 
+| 2019 | June      | 10  | 
+| 2019 | June      | 11  | 
+| 2019 | June      | 12  | 
+| 2019 | June      | 13  | 
