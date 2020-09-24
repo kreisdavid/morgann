@@ -8,6 +8,10 @@ My only regret is not thinking of this idea sooner.
 
 | Year | Month     | Day | Where I Saw Love |
 | ---- | --------- | --- | ---------------- |
+| 2020 | September | 23  | While not limited to today, the support and enthusiasm you've shown me throughout my application process for the supervisor position. Of course I know you're in my corner, but your vibrant display of that is just all the more heartwarming. |
+
+| Year | Month     | Day | Where I Saw Love |
+| ---- | --------- | --- | ---------------- |
 | 2018 | June      | 19  | When I was stuck in the Atlanta airport and you sent a picture of your GPS indicating your willingness to drive all that way to pick me up. |
 | 2018 | June      | 20  | Cuddling up during the Incredibles 2, despite the armrests from the theater being in the way, which I'm sure was somewhat uncomfortable. |
 | 2018 | June      | 21  | Helping me figure out what my look is and upgrade my fashion by picking out a new wardrobe, along with my mother. |
