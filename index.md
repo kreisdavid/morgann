@@ -8,8 +8,10 @@ My only regret is not thinking of this idea sooner.
 
 | Year | Month     | Day | Where I Saw Love |
 | ---- | --------- | --- | ---------------- |
+| 2020 | September | 25  | Our time at the brewery in Two Harbors and going through the questions. |
 | 2020 | September | 24  | Being so ready and calm about me being late getting out of work to drive down to Northfield for my dentist appointment. It was great to be able to run in the door, change, and then run out and we were good to go. |
 | 2020 | September | 23  | While not limited to today, the support and enthusiasm you've shown me throughout my application process for the supervisor position. Of course I know you're in my corner, but your vibrant display of that is just all the more heartwarming. |
+
 
 | Year | Month     | Day | Where I Saw Love |
 | ---- | --------- | --- | ---------------- |
