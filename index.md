@@ -8,6 +8,18 @@ My only regret is not thinking of this idea sooner.
 
 | Year | Month     | Day | Where I Saw Love |
 | ---- | --------- | --- | ---------------- |
+| 2020 | October   |  7  | Rearranging the dining room with you. |
+| 2020 | October   |  6  | Your texts during the day when I was in the middle of just a lot going on with hiring and training people. |
+| 2020 | October   |  5  | Making dinner for you while you napped after a hard day at work. |
+| 2020 | October   |  4  | Tackling the list of deep cleaning to do to our apartment with you. |
+| 2020 | October   |  3  | When you surprised me sneaking into the apartment and into the office when you got back from work. |
+| 2020 | October   |  2  | This is going to sound weird, but the amount of gratitude and love I felt from you when all I did was give your aunt the meat from our csa box.|
+| 2020 | October   |  1  | Going game shopping and your guac. |
+| 2020 | September | 30  | Visiting the last farmers' market of the season. |
+| 2020 | September | 29  | The joy I saw in you when we went to pick up your car in Duluth. So fun to see! |
+| 2020 | September | 28  | Getting to eat lunch with you during my lunch break! |
+| 2020 | September | 27  | Being able to talk more in-depth about how the day before had gone; a very positive conversation that I took a lot from. |
+| 2020 | September | 26  | How you held together in the midst of me breaking your car and no one giving you time to process it. |
 | 2020 | September | 25  | Our time at the brewery in Two Harbors and going through the questions. |
 | 2020 | September | 24  | Being so ready and calm about me being late getting out of work to drive down to Northfield for my dentist appointment. It was great to be able to run in the door, change, and then run out and we were good to go. |
 | 2020 | September | 23  | While not limited to today, the support and enthusiasm you've shown me throughout my application process for the supervisor position. Of course I know you're in my corner, but your vibrant display of that is just all the more heartwarming. |
