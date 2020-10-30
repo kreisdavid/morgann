@@ -8,6 +8,28 @@ My only regret is not thinking of this idea sooner.
 
 | Year | Month     | Day | Where I Saw Love |
 | ---- | --------- | --- | ---------------- |
+| 2020 | October   | 29  | Bringing you coffee after my last work day of the week. |
+| 2020 | October   | 28  | The way you repacked your lunch after eating it. |
+| 2020 | October   | 27  | Going shopping at the mall with you. |
+| 2020 | October   | 26  | Talking things out together. |
+| 2020 | October   | 25  | Sending me the "cuddles now this is a threat" tik toc. |
+| 2020 | October   | 24  | Officially setting our wedding date. |
+| 2020 | October   | 23  | Testing wines at Winehaven for our wedding! |
+| 2020 | October   | 22  | Understanding the care and attention and concern and effort you give toward your job and what it stands for, regardless of how the interview went, knowing you would be fantastic at providing care and support in any role because you give it your all and you understand how to approach and navigate support with people. 
+| 2020 | October   | 21  | Going to home depot to look at paint samples to pick out wedding color scheme. |
+| 2020 | October   | 20  | An outpouring of love (and concern) for you as you navigated spinning out into oncoming traffic during the first bad snowfall of the season. Very glad for the good timing of breakpoints in traffic. |
+| 2020 | October   | 19  | Talking over budget things and student loan monies. |
+| 2020 | October   | 18  | Sending you an "I love you" text and getting a response before I even had time to put down my phone. |
+| 2020 | October   | 17  | Spending time with you after a rough day at the Bierstube. |
+| 2020 | October   | 16  | Taking engagement photos! |
+| 2020 | October   | 15  | Brining me a muffin at work! |
+| 2020 | October   | 14  | The "showing off my new haircut but also very much showing off this ring" picture you sent me after your haircut. |
+| 2020 | October   | 13  | You making yummy pasta sauce for us. |
+| 2020 | October   | 12  | Your updates about the reality of being engaged kicking in. |
+| 2020 | October   | 11  | Everything surrounding proposing to you <3 |
+| 2020 | October   | 10  | Sending you updates of me doing our last CSA picking events and picking up our sweet little Chester after finding out everything is ok with him. |
+| 2020 | October   |  9  | Eating nice pizza we made while on our comfy couch watching our cats cuddle/lick eachother. |
+| 2020 | October   |  8  | Seeing you play with Erik and Robyn's dog. |
 | 2020 | October   |  7  | Rearranging the dining room with you. |
 | 2020 | October   |  6  | Your texts during the day when I was in the middle of just a lot going on with hiring and training people. |
 | 2020 | October   |  5  | Making dinner for you while you napped after a hard day at work. |
