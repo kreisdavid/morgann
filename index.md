@@ -8,6 +8,7 @@ My only regret is not thinking of this idea sooner.
 
 | Year | Month     | Day | Where I Saw Love |
 | ---- | --------- | --- | ---------------- |
+| 2022 | February  | 10  | Your awareness while asleep to adapt to the situation, as evidenced by you falling asleep while watching Murderville but still somehow recognizing that I had closed the laptop and was trying to figure out where to put it, and then reaching over to grab it and put it on the ground somehow while staying asleep the whole time. |  
 | 2020 | October   | 29  | Bringing you coffee after my last work day of the week. |
 | 2020 | October   | 28  | The way you repacked your lunch after eating it. |
 | 2020 | October   | 27  | Going shopping at the mall with you. |
