@@ -8,6 +8,9 @@ My only regret is not thinking of this idea sooner.
 
 | Year | Month     | Day | Where I Saw Love |
 | ---- | --------- | --- | ---------------- |
+| 2022 | February  | 18  | Booking our honeymoon tickets together! |
+| 2022 | February  | 17  | Finding another very comfortable snuggle position on the couch. |
+| 2022 | February  | 16  | Coming home to dinner having been made :) |
 | 2022 | February  | 15  | The way you lean back against me while playing Animal Crossing or watching the show. Just so comforting and overwhelming feeling of love. |
 | 2022 | February  | 14  | Making a lovely charcuterie board for our dinner <3 |
 | 2022 | February  | 13  | The joy I saw in you as we hosted a wonderful gathering for multiple friends. |
