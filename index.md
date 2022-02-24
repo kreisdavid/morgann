@@ -8,6 +8,11 @@ My only regret is not thinking of this idea sooner.
 
 | Year | Month     | Day | Where I Saw Love |
 | ---- | --------- | --- | ---------------- |
+| 2022 | February  | 23  | Realizing that our wine delivery might just end up make us have to go to winehaven and us both having independantly seen their event that we both thought we'd enjoy. |
+| 2022 | February  | 22  | Making a fantastic dinner for us while I was out shoveling. |
+| 2022 | February  | 21  | Trying out food for our wedding! |
+| 2022 | February  | 20  | The joy on your face telling me how you yelled at those kids and how afraid they were. |
+| 2022 | February  | 19  | The attention you gave me while I told how my day working at the stadium had gone. It was nice to tell my stories and really feel like we were on the same page, like you got out of them what I expected when I was excited to tell them. |
 | 2022 | February  | 18  | Booking our honeymoon tickets together! |
 | 2022 | February  | 17  | Finding another very comfortable snuggle position on the couch. |
 | 2022 | February  | 16  | Coming home to dinner having been made :) |
