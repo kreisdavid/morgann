@@ -8,6 +8,12 @@ My only regret is not thinking of this idea sooner.
 
 | Year | Month     | Day | Where I Saw Love |
 | ---- | --------- | --- | ---------------- |
+| 2022 | March     |  1  | Walking over to purchase our veggie box, it just got me so excited to think about where we live and how easily we can walk to things in our community and so happy for the life we are building here. |
+| 2022 | February  | 28  | I feel a lot of love thinking about making our house our home, it just gets me thinking of us and all the great ideas we have and how we are putting them into our living space. So you finding a lovely set of doorknobs just really hit me in a way one does not expect doorknobs to do. And for them to be so similar to the ones I have vivid memories of at my grandparents... amazing. |
+| 2022 | February  | 27  | Our brunch, both the fun walk over there and just being out in the city enjoying a great meal with you. |
+| 2022 | February  | 26  | Lots of things with our hotel stay, but one that jumps out is spending time down in the speakeasy, a fun atmosphere and enjoyable conversation. |
+| 2022 | February  | 25  | When you asked me to take a selfie because you thought I looked really handsome. Crying. |
+| 2022 | February  | 24  | Strangely enough, shopping for a new thermostat. Just got me thinking about our house upgrades, how we are making it our own, and excited for the future in it! |
 | 2022 | February  | 23  | Realizing that our wine delivery might just end up make us have to go to winehaven and us both having independantly seen their event that we both thought we'd enjoy. |
 | 2022 | February  | 22  | Making a fantastic dinner for us while I was out shoveling. |
 | 2022 | February  | 21  | Trying out food for our wedding! |
